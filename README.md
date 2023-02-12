@@ -8,7 +8,7 @@
 
 https://www.linkedin.com/in/daiane-de-almeida-oliveira
 
-📃 https://pages.github.com/daianeoliver/daianeoliver/CV - Daiane de Almeida Oliveira.pdf/
+📃 https://pages.github.com/daianeoliver/daianeoliver/Daiane_de_Almeida_Oliveira.pdf/
 
 
 
