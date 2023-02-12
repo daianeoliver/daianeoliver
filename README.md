@@ -8,7 +8,7 @@
 
 https://www.linkedin.com/in/daiane-de-almeida-oliveira
 
-📃 https://pages.github.com/daianeoliver/daianeoliver/Daiane_de_Almeida_Oliveira.pdf/
+📃 https://github.com/daianeoliver/daianeoliver/blob/main/Daiane_de_Almeida_Oliveira.pdf
 
 
 
