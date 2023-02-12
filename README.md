@@ -6,4 +6,10 @@
 
 💻 Perfil Linkedin | Linkedin Profile
 
-https://www.linkedin.com/in/daiane-de-almeida-oliveira/
+https://www.linkedin.com/in/daiane-de-almeida-oliveira
+
+📃 https://pages.github.com/daianeoliver/daianeoliver/CV - Daiane de Almeida Oliveira.pdf/
+
+
+
+
