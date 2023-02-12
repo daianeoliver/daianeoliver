@@ -8,7 +8,9 @@
 
 https://www.linkedin.com/in/daiane-de-almeida-oliveira
 
-📃 https://github.com/daianeoliver/daianeoliver/blob/main/Daiane_de_Almeida_Oliveira.pdf
+📃 Currículo | Curriculum
+
+https://github.com/daianeoliver/daianeoliver/blob/main/Daiane_de_Almeida_Oliveira.pdf
 
 
 
