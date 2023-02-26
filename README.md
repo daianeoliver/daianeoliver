@@ -12,8 +12,8 @@ https://www.linkedin.com/in/daiane-de-almeida-oliveira
 
 https://github.com/daianeoliver/daianeoliver/blob/main/Daiane_de_Almeida_Oliveira.pdf
 
+:page_facing_up: Portifólio | Portfolio
 
-
-
+https://daianeoliver.github.io/portfolio/homepage.html
 
 
